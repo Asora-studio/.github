@@ -13,7 +13,7 @@
 > Asora Studio à été créé pour remonter le moral quand ça va pas et de construire de beaux souvenirs avec vos proches, donc ne pas respecter votre vie privée serait le non respect de nos valeurs. C'est pour cette raison qu'Asora Studio s'engage à protéger votre vie privée coûte que coûte, nous vendons aucune de vos données.Nous faisons pas ça pour nous venter, mais pour vous rassurer, nos vies privées sont publique pour la plupart des entreprises, et c'est des personnes normaux comme vous et moi qui sont victime de ce non-respect, c'est pour cela que nous voulons changer les choses. 💫
  
 ## Nos Réseaux
-- [Notre Site Web 🌴](https://artika-studio.ml) 
+- [Notre Site Web 🌴](https://asora-studio.ml) 
 - [Notre Serveur Discord 🎶](https://discord.gg/n7rc4EF3qH)
-- [Notre Twitter 🍹](https://twitter.com/artikastudio)
-- Nous contacter : **Contact@artika-studio.ml**
+- [Notre Twitter 🍹](https://twitter.com/asorastudio)
+- Nous contacter : **Contact@asora-studio.ml**
